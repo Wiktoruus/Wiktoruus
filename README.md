@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to sleep
 - 💞️ I’m looking to collaborate on hooking up on www.roksa.pl
 - 📫 How to reach me www.ptoszek.pl
-- 😄 Pronouns: ni/ga
+- 😄 Pronouns: nie posiadam
 - ⚡ Fun fact: judenArmia
 
 <!---
